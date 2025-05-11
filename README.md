@@ -1,4 +1,5 @@
-![Designer (5)](https://github.com/user-attachments/assets/287210b6-ad44-4edc-80be-2449c591acd1)
+![images (1)](https://github.com/user-attachments/assets/1e462f0e-11cc-4b8d-9691-d301584803e2)
+
 - 👋 Hi, I’m @MrsOrtego
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
